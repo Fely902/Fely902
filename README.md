@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data science,analysis and data engineering 
 - 🌱 I’m currently learning Data science 
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me yaksfely888@gmail.com
+- 📫 How to reach me yakubufelicia11@gmail.com
 - 😄 Pronouns: She, her
 - ⚡ Fun fact: I love coding 
 
